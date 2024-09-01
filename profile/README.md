@@ -1,4 +1,4 @@
 # Among Demons
-Let's create the best open source browser based game.
+Unleashing the demons of the digital realm. 😈 Collect, trade, and rule the underworld with our wicked NFTs.
 
-Join us at [amongdemons.com](https://amongdemons.com/)
+Dare to join us? [amongdemons.com](https://amongdemons.com/)
